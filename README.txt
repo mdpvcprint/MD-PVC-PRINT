@@ -1,0 +1,1 @@
+MD PVC PRINT final website. QR payment image included. Delivery time: 7-10 days. Keep index.html and payment-qr.jpg together.
